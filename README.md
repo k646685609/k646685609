@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @k646685609
+- 👋 Hi, I’m Tura
 - 👀 I’m interested in china
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on your eyes
